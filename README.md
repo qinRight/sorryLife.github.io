@@ -1,1 +1,0 @@
-# sorryLife.github.io
